@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Julianavenia
+- 👀 I’m interested in become me in a FullStack web developed. 
+- 🌱 I’m currently learning all about web developed.
+- 💞️ I’m looking to collaborate on projects about web developed.
+- 📫 How to reach me: LinkedIn aveniadelgado@live.com  
